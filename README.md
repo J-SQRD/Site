@@ -1,1 +1,1 @@
-[![bEdsXR.md.jpg](https://iili.io/bEdsXR.md.jpg)](https://freeimage.host/i/bEdsXR)
+[![bg](https://iili.io/bEdsXR.md.jpg)](https://freeimage.host/i/bEdsXR)
